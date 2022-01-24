@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @emilyjnuss
+- 👀 I’m interested in what web3 can be!
+- 🌱 I’m currently learning all about the world of crypto and defi :)
+- 💞️ I’m looking to collaborate with startups seeking help with their marketing!
+- 📫 Reach me on Telegram @emilyjnuss
